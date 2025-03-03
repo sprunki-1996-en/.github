@@ -2,6 +2,8 @@
 
 ![sprunki](https://github.com/user-attachments/assets/0f03487d-9223-4dc2-91f9-39b4b02fa9bd)
 
+  - [sprunki 1996](https://sprunki-incredibox.org/game/sprunki-1996)
+  - [sprunki 1996](https://sprunki.la/game/sprunki-1996)
 
 **Sprunki 1996** is more than just a mod—it’s a time machine that transports you back to the golden era of 90s electronic music. Designed as a retro-inspired remix, this mod captures the essence of a decade defined by its unique soundscapes and underground music culture. With its **vintage synths, grainy samples, and lo-fi beats**, **Sprunki 1996** is a tribute to the creativity and innovation of 1996’s electronic music scene. Whether you’re a fan of classic drum machines or arcade-inspired melodies, this mod offers a **throwback experience** that’s both nostalgic and refreshing. For those eager to dive in, you can explore the game by clicking here: [sprunki 1996](https://sprunki-incredibox.org/game/sprunki-1996).
 
